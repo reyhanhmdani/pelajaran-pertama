@@ -1,0 +1,2 @@
+# pelajaran-pertama
+bismillah
